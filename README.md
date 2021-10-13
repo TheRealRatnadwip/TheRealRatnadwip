@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TheRealRatnadwip
+- 👀 I’m interested in Computer
+- 🌱 I’m currently learning The World
+- 📫 How to reach me https://realratnadwip.wordpress.com/
